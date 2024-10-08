@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Isack-Ramogi
-- 👀 I’m interested in county NGOs jobs
+- 👀 I’m interested in Arts  & Graphic Designs job (Branding)
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 📲 +254799461860
